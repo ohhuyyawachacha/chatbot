@@ -1,85 +1,38 @@
 Shop information
 
-Baker:
-Ms.Iman (Exquisite 3-star Michelin star bakery chef)
+Shop owner:
+Ms.Iman Ilyana (Experience about cat)
 
 Time open:
-Everyday from 9am to 6pm (Except wednesday)
+Everyday from 9.30am to 8.30pm 
 
 Website Link:
-(https://chocolate-cakes-kijjl6g.gamma.site/)
+
 
 Location:
-Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
-State/province/area - Selangor
-Zip code - 42600
+Street -  34, Jalan Pelabur A 23/A, Seksyen 23, 40300 Shah Alam, Selangor
+Zip code - 40300
 
 Phone Number:
-+60 19-439 5991
++60 11 10388087
 
-Cake flavours:
-Chocolate (Available)
-Vanilla (Unavailable)
-Strawberry (Unavailable)
-Blueberry (Unavailable)
+Our values:
+Quality, Compassion, and Convenience are the core values that guide our business. We strive to offer the best for our feline customers and their owners.
 
-Icing flavours:
-Chocolate (Available)
-Vanilla (UnAvailable)
-Mint (Available)
-Strawberry (Available)
-Blueberry (Available)
+Our cat products:
+We offer a wide selection of premium cat food brands to meet the nutritional needs of cats of all life stages.
+we provide your cat with cozy beds, scratching posts, and other furniture to meet their natural instincts.
+Maintain your cat's coat and hygiene with our collection of brushes, shampoos, and other grooming essentials.
+Cat Toys and Accessories
+Cat Grooming Supplies
+Cat Furniture and Beds
 
-Sizes & Pricing:
-Round cake 6 inch diameter - 30RM (40RM with icing)
-Round cake 8 inch diameter - 50RM (62RM with icing)
-Round cake 10 inch diameter - 80RM (95RM with icing)
-Round cake 12 inch diameter - 115RM (132RM with icing)
-Round cake 14 inch diameter - 155RM (175RM with icing)
-Round cake 16 inch diameter - 200RM (220RM with icing)
-Square cake 6x6 inch size - 40RM (52RM with icing)
-Square cake 8x8 inch size - 70RM (88RM with icing)
-Square cake 10x10 inch size - 110RM (140RM with icing)
-Square cake 12x12 inch size - 155RM (195RM with icing)
-Rectangle cake 6x8 inch size - 50RM (65RM with icing)
-Rectangle cake 8x12 inch size - 100RM (125RM with icing)
-Rectangle cake 12x16 inch size - 200RM (240RM with icing)
-Height is 4 inch for all cakes
-
-Ordering process:
-Specify cake tier number (accept 1 to 3)
-For each cake, specify which cake and icing flavour
-If cake tier is more than 1, lower cake must have bigger size than upper ones
-Cake tier cannot have different shapes
-
-Ingredients:
-All-purpose flour, granulated sugar, baking powder, baking soda, eggs, milk, vegetable oil, vanilla extract. (Made from scratch, all locally sourced ingredients)
-
-Programs:
-No cake workshop or decoration classes
-No loyalty program (will soon be implemented)
-No refunds and returns
-
-Promotions:
-[Chocolate Spree] Chocolate cake 20% off (End at 29th March)
-
-Tax:
-10% Government tax
-
-Icing:
-Icing is applied around each cake (except bottom part)
 
 Others:
-No vegan/free gluten options
 Order can be made via phone/chatbot (or coming to place)
-Deposit is 80% of the total price
 Do not accept any form of cash
-Tasting appointment can just come to the place directly
-Doesn't accept order issues, if any issue on orders, tell them to contact customer service via phone number.
 
 Other products:
-Candle (2RM for each candle)
-Lighter for candle (3RM)
-Plastic plates (2RM per 12 plates)
-Plastic utensils (spoon & fork) 1RM per tool
-Plastic knife to cut cake (2.5RM)
+cat essentials oil (2rm)
+Plastic  (2RM)
+
